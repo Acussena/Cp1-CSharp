@@ -1,4 +1,3 @@
 Integrantes:
-Açussena Macedo Mautone - 552568
-Fabrício Saavedra - 97631
+Açussena Macedo Mautone - 552568 e Fabrício Saavedra - 97631
  
